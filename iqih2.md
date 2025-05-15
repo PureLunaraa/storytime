@@ -23,4 +23,4 @@ Iqih: So it all started cuz i had a hard day and i wanted to have some nasty fun
 Interviewer: LOL you little b1 tch  
 Iqih: s1tfu unsuccesful ragebait  
 
-# iqih's organs got torn from all this d1 ck rest in peace fly high:dove: :headstone:
+# iqih's organs got torn from all this d1 ck rest in peace fly high 🕊😔
